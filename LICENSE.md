@@ -1,4 +1,4 @@
-
+professional VMware Fusion for macOS Module | screenshot-tools + quick-launch offers the most advanced VMware Fusion for macOS module, with screenshot-tools and quick-launch.
 
 
 
